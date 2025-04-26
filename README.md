@@ -30,6 +30,5 @@ You can reach me via:
 - **Email**: [munizarukun@gmail.com](mailto:munizarukun@gmail.com)
 - **GitHub**: [https://github.com/your-github-username](https://github.com/your-github-username)
 - **LinkedIn**: [https://www.linkedin.com/in/muniza-r-215870324](https://www.linkedin.com/in/muniza-r-215870324)
--
 
 © 2025 Muniza.R. All rights reserved.
